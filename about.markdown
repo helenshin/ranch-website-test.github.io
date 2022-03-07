@@ -35,6 +35,7 @@ Jennifer is an experienced and innovative educator whose passions for gardening 
 ### Annabelle Meunier
 Annabelle is an urban planner, environmental advocate, artist and activist who enjoys puppets, parties, outdoor activities and participatory art. She learned of the Ranch thanks to Gil, who taught her in a green infrastructure class. You can sometimes find her picking herbs to cook with.
 
+
 ## Our Community Partners
 
 Newtown Creek Alliance
@@ -75,3 +76,5 @@ Julie Won represents the 26th Council district in Western Queens covering the ne
 
 
 ## Featured Press
+
+## Join Us!
